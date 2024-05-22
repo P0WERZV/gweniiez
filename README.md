@@ -7,7 +7,7 @@
 <br>(<a href="https://rentry.co/gweniiez">more information</a>) ― (<a href="https://retrospring.net/@gweniiez">retrospring</a>) 
 <br><br><b>► whisper to interact</b>,  i am if not always off-tab // ask to see my playtime ! 
 <br>also i'm always on the personal tab  
-<p align="center">   
+<br>.
 <br><b><b>► if you're younger than 18, keep interactions short (please)</b>
 <br></b>i don't have a long dni, i'll just hide or ignore you if i need to!</b>
 <br></b>as long as you're not an asshole, we're already besties ;3c</b>
